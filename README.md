@@ -1,1 +1,1 @@
-# CV-for-Livestock
+# CV-for-Livestock Bootcamp
